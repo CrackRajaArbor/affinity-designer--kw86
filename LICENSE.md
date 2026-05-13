@@ -1,4 +1,4 @@
-# 
+# Affinity Designer for macOS updated Panel - auto-retouch and version history is the best Affinity Designer for macOS panel, featuring auto-retouch and version history. Safe,
 
 
 
